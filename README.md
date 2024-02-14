@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LizZz0212
+- 👀 I’m interested in: learn about data, coding and programming lenguagues 
+- 🌱 I’m currently learning: R, SQL and jAVA
+- 📫 How to reach me: my email is lizramirez0212@gmail.com  
+- 😄 Pronouns: She/They
+- ⚡ Fun fact: I like to read, learn new things, crochet and go to the 
